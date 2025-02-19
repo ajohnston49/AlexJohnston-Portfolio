@@ -41,7 +41,11 @@ Research Interests:
 
 Contact Information:
 
-Email: alex999johnston@gmail.com
-LinkedIn: https://www.linkedin.com/in/alex-johnston-281929206/ 
-Discord: 
-Steam: 1679285343
+
+- Email: alex999johnston@gmail.com
+
+- LinkedIn: https://www.linkedin.com/in/alex-johnston-281929206/ 
+
+- Discord: ajohnston49_56509
+
+- Steam: 1679285343
