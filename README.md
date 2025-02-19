@@ -38,4 +38,4 @@ Video Game Development
 Contact Information:
 
 Email: alex999johnston@gmail.com
-LinkedIn: 
+LinkedIn: https://www.linkedin.com/in/alex-johnston-281929206/ 
